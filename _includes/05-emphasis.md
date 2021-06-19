@@ -1,3 +1,3 @@
-Everybody has darkness in them but _YOU CAN SEE_ **BUT U CAN BE THE LIGHT TO LIGHT IT UP **.
+Everybody has darkness in them but _YOU CAN SEE_  **BUT U CAN BE THE LIGHT TO LIGHT IT UP**.
 
 THINGS THAT HURT IS INTENTIONALY _BUT_ **DUE CIRCUMSTANCES THEY COME FROM**.   
